@@ -12,7 +12,7 @@ check these out:
 
 https://m.youtube.com/channel/UCTrriCN7gfKoprzXOqGzJlA
 
-otchii.carrd.co
+https://otchii.carrd.co
 
 ══✿══╡°˖✧✿✧˖°╞══✿══
 
