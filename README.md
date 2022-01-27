@@ -7,3 +7,17 @@
  (if that's how you found my github ofc)
 
 ══✿══╡°˖✧✿✧˖°╞══✿══
+
+check these out:
+
+https://m.youtube.com/channel/UCTrriCN7gfKoprzXOqGzJlA
+
+otchii.carrd.co
+
+══✿══╡°˖✧✿✧˖°╞══✿══
+
+i'm a female, uses she/he/they pronouns online!
+
+cisgender and straight
+
+my birthday is 27 january so cool
