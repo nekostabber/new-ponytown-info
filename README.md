@@ -45,3 +45,4 @@ honestly their canon race is fine theres no need for you to change it wth
 - people in my friends list omg your so hot omgmfndneje /p
 - people who play unpopular / underrated games
 (i play or have played boku boku, wrassling, dream cat paradise, heart star and probably some others i forgot about)
+- people who listen to vocaloid, vocal synth programs or japanese music hell nah
