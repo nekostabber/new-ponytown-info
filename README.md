@@ -40,3 +40,5 @@ honestly their canon race is fine theres no need for you to change it wth
 ══✿══╡°˖✧✿✧˖°╞══✿══
 
 ☆ interact with me or else ill become emo /j:
+- roblox enjoyer :lipbite:
+- people in my friends list omg your so hot omgmfndneje /p
