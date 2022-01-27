@@ -35,4 +35,4 @@ you just do a couple of clicks and hide them???
 - believe racebending is okay either way, whether whitewashing or 'blackwashing' (its in marks for a reason sjws).
 honestly their canon race is fine theres no need for you to change it wth
 - if i'm a part of YOUR dni list. remember that dni goes both ways.
-- idk what else i'll probably add more if i remembr 
+- idk what else i'll probably add more if i remember
