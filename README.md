@@ -25,6 +25,11 @@ my birthday is 27 january so cool
 
 ══✿══╡°˖✧✿✧˖°╞══✿══
 
+☆ notes:
+- please don't make 'mcdonalds wifi' jokes directed at me when i make a statement talking about my wifi being bad. i know i sound like a karen and maybe a person whose 'defensive over wifi', but it genuinely makes me uncomfortable because i feel like you're mocking and disregarding the fact my wifi is bad. i don't choose for my fucking router to go red and green every two seconds.
+
+══✿══╡°˖✧✿✧˖°╞══✿══
+
 ☆ do not interact:
 - if you f--ked my mom /j
 - discriminates against race, gender, religion, sexual orientation, etc
