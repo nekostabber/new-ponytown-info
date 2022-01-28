@@ -42,6 +42,7 @@ honestly their canon race is fine theres no need for you to change it wth
 
 ☆ interact with me or else ill become emo /j:
 - roblox enjoyer :lipbite:
+please interact if you play 'generic style' roblox games or roblox dressup games ogmgmfjkdit <3
 - people in my friends list omg your so hot omgmfndneje /p
 - people who play unpopular / underrated games
 (i play or have played boku boku, wrassling / expert wrassling, dream cat paradise, heart star and probably some others i forgot about)
