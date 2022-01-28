@@ -44,7 +44,7 @@ honestly their canon race is fine theres no need for you to change it wth
 - roblox enjoyer :lipbite:
 - people in my friends list omg your so hot omgmfndneje /p
 - people who play unpopular / underrated games
-(i play or have played boku boku, wrassling, dream cat paradise, heart star and probably some others i forgot about)
+(i play or have played boku boku, wrassling / expert wrassling, dream cat paradise, heart star and probably some others i forgot about)
 - people who listen to vocaloid, vocal synth programs or japanese music hell nah
 - cavetown lemon demon tally hall or any good music *marrys you*
 - editors
